@@ -1,4 +1,4 @@
-<h1>"Warfare" (2025) 𝖥𝗎𝗅𝗅𝖬𝗈𝗏𝗂𝖾 𝖣𝗈𝗐𝗇𝗅𝗈𝖺𝖽 𝖥𝗋𝖾𝖾 𝟦𝖪, 𝟩𝟤𝟢𝗉, 𝟦𝟪𝟢𝗉 𝖺𝗇𝖽 𝟣𝟢𝟪𝟢𝖯 𝖧𝖣</h1>
+<h1>"G20" (2025) 𝖥𝗎𝗅𝗅𝖬𝗈𝗏𝗂𝖾 𝖣𝗈𝗐𝗇𝗅𝗈𝖺𝖽 𝖥𝗋𝖾𝖾 𝟦𝖪, 𝟩𝟤𝟢𝗉, 𝟦𝟪𝟢𝗉 𝖺𝗇𝖽 𝟣𝟢𝟪𝟢𝖯 𝖧𝖣</h1>
 
 In the vibrant realm of international romance cinema, filmmakers continue to push the boundaries with innovative narratives and visually stunning storytelling. Among these fresh endeavors, G20 (2025) has quickly captured audiences' attention. This film stands out for its honest exploration of love, mistakes, and the journey toward self-forgiveness, promising a cinematic experience that is as emotionally moving as it is visually captivating.
 
